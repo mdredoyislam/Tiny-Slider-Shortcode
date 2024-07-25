@@ -1,0 +1,1 @@
+Ei Plugin Kaj Kora Hoyese Kivabe Shortcode Er Maddome Slider Use Kora Jay And Slider Er Jonno Shortcode Generate Kora Jay 
